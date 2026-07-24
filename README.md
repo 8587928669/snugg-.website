@@ -1,1 +1,1 @@
-![imagealt](https://github.com/8587928669/snugg-.website/blob/41074fa3b126272afd73b50f463ad9b31c65633a/images)
+![imagealt]()https://github.com/8587928669/snugg-.website/blob/1b961b88108f61ba448f9037a21d9327099c67a5/bracelet.jpg
